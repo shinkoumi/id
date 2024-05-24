@@ -5,6 +5,6 @@
 + [kisaragi shintaro](https://pbs.twimg.com/media/E1JRSAeXMAQCsxd?format=png&name=900x900) - kagepro
 + [nagai kei](https://ogre.natalie.mu/media/news/eiga/2016/1104/ajin_201611_02.jpg?imwidth=750&imdensity=1) - ajin
 + [geto suguru](https://i.pinimg.com/originals/0e/01/c7/0e01c70df4135c5e06f692316c20913f.jpg) - jujutsu kaisen
-+ [daan](https://static.wikia.nocookie.net/fearandhunger/images/2/2c/DoctorDann.png/revision/latest?cb=20240508010857) - fear and hunger
++ [daan](https://pbs.twimg.com/media/GJUNtjgWAAA-FIu?format=png&name=900x900) - fear and hunger
 + [tsugino haru](https://static1.personality-database.com/profile_images/bf3ce3d4750649c88f21c1aa943b1b6a.png) - zeno
 + [ryker](https://rossocadere.neocities.org/assets/icons/rykerportrait.png) - 8:11
